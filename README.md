@@ -14,7 +14,7 @@ Want to buy the 10u spacebars? https://pearlboards.net/
 
 ----------------------------------------------------------------------------------------------------------
 
-                      Socials:
+    Socials:
 
 Check out KeyboardEvy here: https://www.instagram.com/keyboardevy/
 
