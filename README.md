@@ -3,7 +3,7 @@ In collaboration with Evyd13 and Koobaczech, Kazoos &amp; Co. Brings a 10u compa
 
 ----------------------------------------------------------------------------------------------------------
 
-Check out the oringinal Plain60 here: https://github.com/evyd13/plain60-c
+Check out the original Plain60 here: https://github.com/evyd13/plain60-c
 
 ----------------------------------------------------------------------------------------------------------
 
